@@ -13,4 +13,4 @@
 
 ### I Like Kissing Boys Btw (Freaky Mode Activated) (aqua ik ur there i want to kiss u so bad)!!!! 
 
-##⚡ Fun fact: Im Outside Your Window!!!!
+## ⚡ Fun fact: Im Outside Your Window!!!!
