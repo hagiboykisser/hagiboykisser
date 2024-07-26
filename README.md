@@ -1,16 +1,14 @@
-## Hi there 👋
+## Hi guys!!!!!!!
+### 🥇 Tier 1 Skidder (only if lawin == true 😈😈😈😈😈)
 
-<!--
-**hagiboykisser/hagiboykisser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## 🔭 I’m currently working on ExoticFN
+## 😄 Pronouns: She / Her (or He / Him)
+## 😄 Wiks Likes Me
+## 🐸 OGFN Enjoyer!!!!
 
-Here are some ideas to get you started:
+## I know js>>>>😎, python🕐, C#, TypeScript (i dont like it :sob)
+## I __CANT__ learn C++ i just CANT!!!!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### I Like Kissing Boys Btw (Freaky Mode Activated) (aqua ik ur there i want to kiss u so bad)!!!! 
+
+##⚡ Fun fact: Im Outside Your Window!!!!
