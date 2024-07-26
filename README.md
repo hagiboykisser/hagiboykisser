@@ -7,6 +7,8 @@
 ## 🐸 OGFN Enjoyer!!!!
 
 ## I know js>>>>😎, python🕐, C#, TypeScript (i dont like it :sob)
+## 📘 Learnining Electron Shit!!!!!!!!!
+## EAC is the best AC!!! (🧢)
 ## I __CANT__ learn C++ i just CANT!!!!
 
 ### I Like Kissing Boys Btw (Freaky Mode Activated) (aqua ik ur there i want to kiss u so bad)!!!! 
